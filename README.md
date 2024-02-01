@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Mahaona
 - 👀 I’m interested in Fashion Design and 3D Design
-- 🌱 I’m currently working in 3D software.
-- 💞️ I’m looking to collaborate on MetaVerse, Fashion, and 3D projects
+- 🌱 I’m currently working in 3D software and Patternmaking CADs.
+- 💞️ I’m looking to collaborate on MetaVerse, Fashion, and on 3D projects
 - 📫 How to reach me digitalifashion@gmail.com
 
 <!---
